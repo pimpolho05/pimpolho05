@@ -6,7 +6,7 @@ Estudo na escola [nicota](instagrram/escola.donanicota)
 
 
 
-![](https://tenor.com/pt-BR/view/girl-baby-kid-cute-sad-gif-17137212)
+![](https://media1.tenor.com/m/d4sPgSJml54AAAAC/opihomm-funny.gif)
 
 
 
