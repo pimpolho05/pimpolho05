@@ -1,4 +1,4 @@
-## oi, seja Bem vindo ao mue perfil!:😄
+## oi, seja Bem vindo ao meu perfil!:😄
 
 ** sou Hapuque **
 
